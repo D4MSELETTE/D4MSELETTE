@@ -1,8 +1,6 @@
 ## welcome and goodbye
 
-ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=4KlT0&label=:3&color=ec9e6d)
+ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=4KlT0&label=☾⋆&color=d6bfd5)
 
+<img width="540" height="304" alt="1000023390" src="https://github.com/user-attachments/assets/c2e4bcb5-3766-464f-a1d3-f4b504387da6" />
 
-hi hai hello my name is akito shinonome . ㅤㅤㅤㅤㅤㅤdo not inspo!
-
-![1000007294](https://github.com/user-attachments/assets/c58e3d55-de19-4d08-a92b-045a369cb6ac)
